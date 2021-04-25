@@ -1,1 +1,3 @@
-# v12kayitbotu
+# Blood Teyit
+
+Bot By Loz Bey ❤️ ❤️ ❤️ ❤️ ❤️ ❤️ ❤️ ❤️ 
